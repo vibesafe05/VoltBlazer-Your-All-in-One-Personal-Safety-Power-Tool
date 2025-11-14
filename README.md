@@ -1,2 +1,6 @@
 # VoltBlazer-Your-All-in-One-Personal-Safety-Power-Tool
 Stay safe on your terms. VoltBlazer = 5 million volts + flashlight + USB recharge. Compact, powerful, everyday-carry.
+Stay safe wherever you go—introducing the VoltBlazer Stun Gun + Flashlight: your compact, reliable personal-protection tool that fits in your palm. With up to 5 million volts of non-lethal shock power, an integrated bright LED flashlight, and USB-rechargeable battery, this rugged device is designed for everyday carry and instant access when it matters most. 
+Whether you’re walking home late, riding in a cab, travelling solo, working late in delivery or field-jobs, or simply want added peace of mind—VoltBlazer gives you the confidence and control in high-stress moments. Lightweight and pocket-friendly, with an ergonomic grip and discreet but powerful form-factor, you no longer need to sacrifice safety for convenience. 
+Eligible and legal for personal use in India, it’s the smart choice for professionals, women, seniors and anyone committed to personal security. Slip it into your purse, glove-box or backpack—charge it via USB, and you’re ready to go. VoltBlazer: shock, light and safety in your palm.
+know more: https://vibesafe.in/products/voltblazer-stun-gun-flashlight?variant=46463818006753
